@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+大家好，很高兴认识大家
+
+我叫楼仪，来自福州．
